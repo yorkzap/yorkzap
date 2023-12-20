@@ -1,6 +1,6 @@
 ### I'm Raj 👋
 
-Passionate about uncovering truths, embracing technology, navigating the world of trade, and solving challenges with the tenacity of a determined detective.
+Passionate about uncovering the truth, embracing technology, navigating the world of trade, and solving challenges with the tenacity of a determined detective.
 
 # About Me
 
